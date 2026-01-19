@@ -1,16 +1,10 @@
-## Hi there 👋
-
-<!--
-**evourai/evourai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">   
+ ‎<p align="center">
+  - <a href="https://pronouns.cc/@faemoose">prns.cc</a> -  
+   <a href="https://sharooh.atabook.org/">atabook </a>  -
+   <a href="https://faemoose.straw.page/">strawpage </a>  -
+    ‎ ‎ ‎ ‎‎<p align="center">
+    ୨୧ 
+      
+  ![G-PHDuPbMAATUj5 (1)](https://github.com/user-attachments/assets/095efab8-66ac-4089-8999-7441440d3a93)
+୨୧ ic: @calsoiyum_ on twt !
